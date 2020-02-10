@@ -1,0 +1,1 @@
+# C-Users-vaculciak-peter-Desktop-useful-BCG-stuff-personal-development-MBAInseadAnalyticsRepository
